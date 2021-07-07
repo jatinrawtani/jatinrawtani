@@ -1,3 +1,3 @@
-# Hi there 🙏 , I'm **[Jatin Rawtani](www.instagram.com/jatinrawtani)** 👋
+# Hi there 🙏 , I'm **Jatin Rawtani** 👋
 
 ## ✨ Welcome to my github profile ✨
